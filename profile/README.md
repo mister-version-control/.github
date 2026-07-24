@@ -1,3 +1,3 @@
-# Mr. Version Control
+# Mr. Coming Soon
 
-Coming soon...
+Please check back soon for updates on this project.
